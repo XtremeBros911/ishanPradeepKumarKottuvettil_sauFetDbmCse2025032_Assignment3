@@ -1,2 +1,0 @@
-# ishanPradeepKumarKottuvettil_sauFetDbmCse2025032_Assignment3
-Assignment_3
